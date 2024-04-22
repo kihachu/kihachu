@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on cyber security projects
-- 📫 How to reach me: discord @kihachu
+- 📫 How to reach me: discord @kihachu, e-mail: contact@kihachu.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ehh...
 
